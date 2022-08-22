@@ -1,4 +1,4 @@
-# Tramite1
+# Inscripción como patrono en la CCSS
 
 - Paso 1
 - Paso 2
